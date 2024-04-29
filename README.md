@@ -8,15 +8,17 @@ anyland 是一家成立于2021年12月的翻墙机场，支持 Trojan 和 Shadow
 
 ## Anyland优惠码
 
-福利一 即日起购买任何年套餐（特别优惠），优惠券输入：“新春快乐”。
-
-福利二 即日起购买年套餐（特别优惠），赠送有效时长：
-
-Basics年套餐（特别优惠）：赠送15天有效时长；
+年套餐(特别优惠)9折特惠，特惠码： 51go
 
 Plus年套餐（特别优惠）：赠送30天有效时长；
 
 VIP、King年套餐（特别优惠）：赠送45天有效时长。
+
+不限时流量套餐500G或以上：Tiktok/Instagram独享账号2选1赠送
+
+Mini年套餐（特别优惠）: ChatGPT/Tiktok/Instagram独享账号3选1赠送
+
+Basics年套餐（特别优惠）: ChatGPT/Tiktok/Instagram独享账号3选2 赠送
 
 ## 特色
 
