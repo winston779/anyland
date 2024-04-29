@@ -2,7 +2,7 @@
 
 最新地址：[any62.cc](https://any66.cc/#/register?code=KQHXkaiC)
 
-## 简介
+## Anyland介绍
 
 anyland 是一家成立于2021年12月的翻墙机场，支持 Trojan 和 Shadowsocks 翻墙协议，国内三线接入，拥有定制的 Windows、Mac、Android 一键翻墙客户端，稳定解锁奈飞、迪士尼等流媒体服务。
 
