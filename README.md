@@ -1,6 +1,6 @@
 # Anyland官网地址
 
-最新地址：[any62.cc](https://al111.cc/#/register?code=KQHXkaiC)
+最新地址：[any62.cc](https://al112.cc/#/register?code=KQHXkaiC)
 
 ## Anyland介绍
 
