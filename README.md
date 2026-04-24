@@ -1,6 +1,6 @@
 # Anyland官网地址
 
-最新地址：[any62.cc](https://al102.cc/#/register?code=KQHXkaiC)
+最新地址：[any62.cc](https://103.118.42.128:11111/?invite_code=KQHXkaiC)
 
 ## Anyland介绍
 
